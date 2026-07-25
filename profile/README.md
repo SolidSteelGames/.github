@@ -7,6 +7,7 @@ We make games so incredibly good
 
 ## Very Good People
 - Anjo1920
+- PhoenixPulze
 - Memelian4
 - Nugetinc
 
